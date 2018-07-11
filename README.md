@@ -1,2 +1,2 @@
 # Contacts
-Not anything to look just learning
+Not anything to look just learning :P
